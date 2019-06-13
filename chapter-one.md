@@ -10,11 +10,9 @@ medo de dizer e não ser ouvido. medo de sentir e não ser correspondido. medo d
 
 medo de viver.
 
-mas sabe um desses raros dias em que a gente acorda com uma vontade absurda de fazer diferente, de ser a diferença pra alguém ou pra nós mesmos? 
+às vezes eu tenho vontade de fazer diferente. 
 
-acordei assim hoje.
-
-só que eu não posso e nem vou mentir, meu amigo. eu não sou o autor dessa coragem repentina \(não totalmente\), e se eu respirar e inspirar mais algumas vezes a ideia vai fugir da minha mente, assim como todas as vezes que eu fugi de tudo que pudesse me cativar e partir. você não acha engraçado \(em um humor cruel\) que a gente tenha medo de demonstrar muito e perca por darmos tão pouco? 
+só que eu não posso e nem vou mentir, meu amigo. eu não sou nada bom em reinventar e esses picos de coragem não me pertencem \(não totalmente\), se eu respirar e inspirar mais algumas vezes a ideia vai fugir da minha mente, assim como todas as vezes que eu fugi de tudo que pudesse me cativar e partir. você não acha engraçado \(em um humor cruel\) que a gente tenha medo de demonstrar muito e perca por darmos tão pouco? 
 
 às vezes eu penso nisso.
 
