@@ -43,5 +43,9 @@
         "sectionx": {
             "tag": "b"
         }
-    }
+    }"styles": {
+    "website": "./sass/website.sass"
+   .book-chapter + .section
+		white-space: pre-wrap
+}
 }
