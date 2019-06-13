@@ -22,5 +22,9 @@ penso, mas fico aqui, parado...
 
 como se eu fosse o telespectador e não o protagonista dessa loucura que tem sido minha vida.
 
+eu gostaria de mudar.
+
+
+
 obrigado por me ouvir, amigo!
 
