@@ -16,7 +16,7 @@ só que eu não posso e nem vou mentir, meu amigo. minhas inseguranças falam ma
 
 às vezes eu penso nisso.
 
-penso também na quantidade de vezes que antecipei finais que talvez nem fossem existir se eu tivesse simplesmente dito as palavras.
+me vem na cabeça a quantidade de vezes que antecipei finais que talvez nem fossem existir se eu tivesse simplesmente dito as palavras.
 
 eu penso, mas fico aqui, parado...
 
