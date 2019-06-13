@@ -12,7 +12,9 @@ medo de viver.
 
 às vezes eu tenho vontade de fazer diferente. 
 
-só que eu não posso e nem vou mentir, meu amigo. minhas inseguranças falam mais alto, eu não sou nada bom em reinventar e esses picos de coragem não me pertencem \(não totalmente\), se eu respirar e inspirar mais algumas vezes a ideia vai fugir da minha mente, assim como todas as vezes que eu fugi de tudo que pudesse me cativar e partir. você não acha engraçado \(em um humor cruel\) que a gente tenha medo de demonstrar muito e perca por darmos tão pouco? 
+só que eu não posso e nem vou mentir, meu amigo. minhas inseguranças falam mais alto, eu não sou nada bom em reinventar e esses picos de coragem não me pertencem \(não totalmente\), se eu respirar e inspirar mais algumas vezes a ideia vai fugir da minha mente, assim como todas as vezes que eu fugi de tudo que pudesse me cativar e partir. 
+
+você não acha engraçado \(em um humor cruel\) que a gente tenha medo de demonstrar muito e perca por darmos tão pouco? 
 
 às vezes eu penso nisso.
 
