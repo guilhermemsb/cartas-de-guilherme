@@ -10,7 +10,7 @@ já dormiu com sua vida basicamente no lugar, quero dizer, emprego aceitável, b
 
 eu não sou ingênuo e as pessoas mentem. talvez eu estivesse errado em esperar, ou melhor, em não esperar. você pode me julgar? era meu pai ali; o cara que me ensinou a ser tudo o que eu sou e que me mostrou tudo o que eu sei. _seja honesto, Guilherme, seja honesto_. não era um estranho, era meu melhor amigo e ele estava me destruindo.
 
-_**"eu to te contando porque você sempre pediu pra que eu te falasse a verdade"**_, ele dizia. que diabos eu tinha na porra da cabeça quando pedi algo assim? que diabos tinha na cabeça dele? talvez eu estivesse errado, talvez o errado seja eu. não posso lidar com a verdade, fui ingênuo e meu pai mente.
+_**"eu to te contando porque você sempre pediu pra que eu te falasse a verdade"**_, ele dizia e eu me sentia encurralado. que diabos eu tinha na porra da cabeça quando pedi algo assim? que diabos tinha na cabeça dele? talvez eu estivesse errado, talvez o errado seja eu. não posso lidar com a verdade, fui ingênuo e meu pai mente.
 
 obrigado por chegar até aqui, meu amigo!
 
