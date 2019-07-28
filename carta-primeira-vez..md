@@ -1,0 +1,4 @@
+# carta, primeira vez.
+
+você consegue lembrar do dia que a gente se viu pela primeira vez? não, eu não to falando sobre o dia em que fomos apresentados, ou das vezes que passamos alheios um ao outro pelo corredor e esquece aquele dia em que eu te disse um oi sem jeito e sem muitas delongas. se você tá chutando o dia em que assistiu minha apresentação de trabalho, está errada. to falando sobre aquele dia em que você estava indo embora apressada mas parou quando me viu arranhando algumas notas da tua canção favorita, sentou do meu lado toda empolgada e quis dar voz, você não se importou com quem estava olhando ou se o ritmo não era adequado. foi aquele dia em que a música parou, nosso olhar se encontrou mas o silêncio não foi constrangedor. eu esperei você levantar e ir embora mas você ficou, você sorriu e eu me peguei sorrindo de volta. e quer saber? tenho sorrido desde então.
+
