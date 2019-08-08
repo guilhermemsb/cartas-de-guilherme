@@ -1,0 +1,4 @@
+# todo mundo fica bem.
+
+_eventualmente todo mundo fica bem_. eu não me recordo se li isso em algum lugar uns anos atrás ou se foi alguém que me falou. digo, não importa como, o lance é que eu venho repetindo isso pra mim mesmo em tempos que os fardos são grandes demais para serem carregados. meu melhor amigo costuma me perguntar: “vai escrever sobre isso?” quando, segundo ele, até uma porta consegue esboçar mais reações do que eu. eu digo que não é o momento, que to tendo um bloqueio criativo dos infernos, que essa merda toda não é grande coisa, às vezes nem respondo porque ele tá chapado demais pra entender. é só que tem dias que não é nada, amigo. nada. não existe nada além de um vazio que eu não posso preencher. e, a verdade é que eu não escrevo quando eu quero, eu escrevo quando eu sinto. e quando eu não sentir, vou falar sobre o quê?
+

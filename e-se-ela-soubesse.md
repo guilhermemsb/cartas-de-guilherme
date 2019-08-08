@@ -1,0 +1,4 @@
+# e se ela soubesse?
+
+e se ela soubesse sobre o turbilhão de sentimentos que vem causando no meu peito só pelo simples \(e extraordinário\) fato de existir? será que fugiria ou ficaria? minha imaginação voa, gostaria de ser o causador diário do sorriso dela, o dono dos seus pensamentos mais profundos e de todos os seus beijos e abraços, o único a desvendá-la pelo olhar e a ajuda-lá a criar planos, mesmo que ela não precise. eu garanto que ela não precisa de ninguém para fazer isso, ela é incrível. mas a possibilidade de ela não precisar de ninguém e mesmo assim me querer me alucina, confesso. se ela soubesse que eu não tenho a intenção de assistir nenhum de seus filmes favoritos mas apenas de observá-la vê-los e que minha motivação para ficar acordado a noite toda não seria o nascer do sol, será que se irritaria? eu apenas não consigo me imaginar concentrado em outra coisa que não seja ela. ela não sabe, mas se soubesse… fugiria ou ficaria?
+

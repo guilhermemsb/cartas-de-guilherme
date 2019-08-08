@@ -1,0 +1,4 @@
+# carta, sete dias.
+
+as pessoas costumam dizer que a primeira semana é a pior, então vou te dizer como tenho lidado: no primeiro dia, eu pensei que foi melhor assim, não tive vontade de chorar, eu estava bem, oras, relacionamentos acabam. no segundo dia, eu decidi que tudo bem ficar na cama um pouco mais, talvez porque ela ainda tivesse teu cheiro. no terceiro dia, eu não soltei o celular esperando uma mensagem ou ligação tua. no quarto dia, eu vi sua mãe na padaria e ela me perguntou porque eu não tenho aparecido pra te ver, você ainda não havia contado sobre nós, não é? falei que estava sem tempo e iria assim que possível, acho que ela não acreditou muito, afinal, nada no mundo me impediria de estar contigo, exceto você. no quinto dia, eu não me controlei e te liguei na madrugada, você não atendeu. no sexto dia, caiu a real que era o fim e eu me permiti chorar. hoje, eu estou bem, se você não me perguntar.
+
