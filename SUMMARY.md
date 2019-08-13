@@ -44,4 +44,5 @@
 * [carta, futuro amor.](carta-futuro-amor..md)
 * [carta, azul.](carta-azul..md)
 * [retrocesso.](retrocesso..md)
+* [fases.](fases..md)
 
