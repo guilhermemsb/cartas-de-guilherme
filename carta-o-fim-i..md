@@ -1,4 +1,4 @@
-# carta, o fim I.
+# carta, o fim II.
 
 sim, eu sei que doeu quando eu resolvi ir embora e que você não ia ficar bem como disse que ficaria, que doeu ter que apagar meu número e nossas inúmeras fotos, que você teve que reunir toda sua coragem para me olhar no olho e erguer todo o teu orgulho enquanto sorria, me mandando ir para o inferno e pedindo para eu nunca mais aparecer na tua vida. eu sei, eu sei… doeu em mim também. doeu porque eu não queria ser mais um na sua lista de partidas, porque eu já sentia sua falta antes mesmo de sair do seu lado e porque cada pedaço meu queria cada pedaço teu. eu lembro que desde o começo do nosso namoro brincávamos de que não éramos certos um pro outro, mas eu me empenhava em ouvir teu riso todos os dias, fosse com piadas sem graças ou danças desajeitadas. e, como no mundo isso poderia ser errado? não era! não poderia ser! mas nossas brigas pararam de ser pelo controle da televisão, pelas decisões de escolher o melhor sabor de sorvete e tua risada perdeu o som. nosso amor não era errado mas o momento não era o certo, talvez não fossemos mesmos certos. eu queria que fosse, eu queria ficar.
 
