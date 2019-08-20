@@ -45,5 +45,4 @@
 * [carta, azul.](carta-azul..md)
 * [retrocesso.](retrocesso..md)
 * [fases.](fases..md)
-* [carta, órbita.](orbita..md)
 
