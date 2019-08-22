@@ -45,4 +45,5 @@
 * [carta, azul.](carta-azul..md)
 * [retrocesso.](retrocesso..md)
 * [fases.](fases..md)
+* [carta, duas da manhã.](carta-duas-da-manha..md)
 
